@@ -54,7 +54,7 @@ We hope that this project will be useful for users who want to improve their ski
 
 If you have any questions or feedback, please contact us :
 
-https://www.linkedin.com/in/gurpal-singh-914060226/ <br>
+https://www.linkedin.com/in/akash-x-11734b225/<br>
+https://www.linkedin.com/in/gurpal-singh-914060226/<br>
 https://www.linkedin.com/in/amritpalsingh492/<br>
 https://www.linkedin.com/in/aditi-goyal-002706237/<br>
-https://www.linkedin.com/in/akash-x-11734b225/
